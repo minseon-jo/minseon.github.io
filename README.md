@@ -1,1 +1,0 @@
-# minseon.github.io
